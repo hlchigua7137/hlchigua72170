@@ -13,10 +13,6 @@
 
 <a href="https://redianshijian01.pages.dev/">黑料</a>
 
-<a href="https://74mao.com/">74猫导航主站</a>
-
-<a href="https://74mao.com/">Telegram频道传送门</a>
-
 <a href="https://weimiquanzui01.pages.dev/">黑料社</a>
 
 <a href="https://heiliaowangjinri-02.pages.dev/">黑料网</a>
